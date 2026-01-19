@@ -1,4 +1,4 @@
-# Константин Ларин
+# Константин Ларин / Konstantin Larin
 
 *Zukünftiger Student der Informatik | Deutschland*
 
